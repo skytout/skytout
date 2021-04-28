@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @skytout
+- 👋 Hi, I’m @Maya Tout
 - 👀 I’m interested in graphic designing, coding and and any kind of art honestly...
 - 🌱 I’m currently learning advanced, minecraft coding.
 - 💞️ I’m looking to collaborate Collabs closed :)

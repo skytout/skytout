@@ -2,7 +2,7 @@
 - 👀 I’m interested in graphic designing, coding and and any kind of art honestly...
 - 🌱 I’m currently learning advanced, minecraft coding.
 - 💞️ I’m looking to collaborate Collabs closed :)
-- 📫 How to reach me add my discord - skytout of questions!
+- 📫 How to reach me add my discord - on my course!
 
 <!---
 skytout/skytout is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
